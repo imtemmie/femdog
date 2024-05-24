@@ -1,3 +1,3 @@
 <p align="center">
-[ hiiii i'm mia ]
+hiiii i'm mia
 </p>
