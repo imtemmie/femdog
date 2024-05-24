@@ -1,4 +1,4 @@
-<i>i know this pretty rave girl!</i>
+<i>i know this pretty rave girl...</i>
 <p align="center">
   <img src="https://files.catbox.moe/h9r8pj.png">
 <b>m</b>ia  <i>or</i>  vito‎ ‎ ‎ ‎ ‎ ‎ ‎ 
@@ -9,5 +9,5 @@
     <br> sdv finalfantasy eurodance
 </p>
 <p align="right">
-<i>always think about her!</i>
+<i>...always think about her!</i>
 </p>
