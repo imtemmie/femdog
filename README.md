@@ -6,7 +6,7 @@
 <br>adult, please do not make nsfw jokes around me.
   <br> usually off-tab or sitting with friends<i>!</i>
   <br><br> <i><b><3</b></i> tdi pkmn eldenring
-    <br> sdv finalfantasy eurodance
+    <br> sdv finalfantasy ocs
 </p>
 <p align="right">
 <i>...always think about her!</i>
