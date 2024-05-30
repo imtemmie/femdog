@@ -7,7 +7,7 @@
   <br> usually off-tab or sitting with friends<i>!</i>
   <br><br> ♡ tdi pkmn eldenring
     <br> sdv finalfantasy ocs
-<br><br> i hide freely and iwc.
+<br><br> i hide freely. but mostly okegom/btd fans.
 </p>
 <p align="right">
 <i>...always think about her!</i>
