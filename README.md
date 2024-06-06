@@ -7,7 +7,7 @@
   <br>very socially anxious<i>!</i> (but friendly.)
   <br><br> ♡ tdi pkmn eldenring
     <br> sdv finalfantasy ocs
-<br><br> i hide freely. but mostly okegom/btd fans.
+<br><br> i hide freely. but mostly okegom/btd/ranfren fans.
 </p>
 <p align="right">
 <i>...always think about her!</i>
